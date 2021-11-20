@@ -9,7 +9,7 @@ Integrantes:
   Guilherme Franco Roldão da Silva - RM 85552
   Gabriel Bomfim de Oliveira - RM 83228
   
-Link do Yuotube:
+Link do Youtube:
   https://www.youtube.com/watch?v=4B_3ToE4NjQ
   
 Instruções:
